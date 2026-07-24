@@ -1,9 +1,9 @@
 
-Hey I'm DDoS_shadow.exe ✌️
+Hey I'm shadow.exe ✌️
 #
 About me ------->
 
-I love to eat 😁
+I love to food 😁
 
 <img width="800" height="450" alt="253382_Nero_AI_Background_Remover_transparent" src="https://github.com/user-attachments/assets/f1a22a69-97a7-44ba-bae1-787178b478f0" />
 
